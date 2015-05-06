@@ -1,0 +1,1 @@
+a very well built minecraft clone for android it will feature crafting close to minecraft and textures close to minecraft it will also be probably free it will be an indie game and if it is succesful i will make an even better one on PC :)
